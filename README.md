@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything defi related, get me interested in what idk about yet
 - 📫 How to reach me: i'm not really sure. i heard about lens and dune, maybe i'll join soon
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: i'm only in 8th grade, my dad kind of told me a little bit about decentralisation so now i'm trying to get ahead of everyone else lol
+- ⚡ Fun fact: im super cool and i may look like a noob but dont let it fool you
